@@ -1,0 +1,1 @@
+Not so much here yet. The materials (except for folder "My consultancy profile") was used from my talks or discussions of the basics of a certain subject. I hope to upload more in the future including some of my didactical materials.
