@@ -1,1 +1,0 @@
-1. There had been 'Consultancy_profi1e_cv.pdf' here. It has been redesigned and the file renamed to 'A_PASSPORT_to_IT_as_BIZ_FACILITY.pdf' The copy when printed will have the size of a passport. 
